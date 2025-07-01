@@ -1,3 +1,4 @@
+![Uploading IMG-20250627-WA0038.jpg…]()
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
 -----------
